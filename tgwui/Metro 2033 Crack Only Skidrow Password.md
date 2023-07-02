@@ -1,0 +1,27 @@
+
+ 
+# Metro 2033: How to Unlock the Secret Ending with Only One Password
+ 
+Metro 2033 is a post-apocalyptic first-person shooter game based on the novel by Dmitry Glukhovsky. The game follows Artyom, a survivor of a nuclear war that devastated Moscow and forced the survivors to live in the underground metro system. Artyom must fight his way through mutants, bandits, and other threats as he tries to save his home station from a mysterious threat known as the Dark Ones.
+ 
+The game has two possible endings: a default one where Artyom launches a missile strike against the Dark Ones, and a secret one where he spares them and realizes they are not enemies but misunderstood beings. The secret ending is harder to achieve and requires the player to make certain moral choices throughout the game. However, there is a way to unlock the secret ending with only one password, without having to replay the entire game.
+ 
+**Download — [https://t.co/Dt0PIHqr3L](https://t.co/Dt0PIHqr3L)**
+
+
+ 
+The password is "enlightened". To use it, the player must load the last level of the game, "Tower", and reach the point where Artyom has to enter a code on a keypad to launch the missiles. Instead of entering the code shown on the screen (which is "2013"), the player must enter "enlightened" and press enter. This will trigger a cutscene where Artyom changes his mind and decides to spare the Dark Ones. The game will then end with the secret ending.
+ 
+metro 2033 skidrow crack fix download,  how to install metro 2033 crack only skidrow,  metro 2033 crack only skidrow free download,  metro 2033 skidrow password rar,  metro 2033 crack only skidrow no steam,  metro 2033 skidrow crack not working,  metro 2033 crack only skidrow torrent,  metro 2033 skidrow password txt,  metro 2033 crack only skidrow direct link,  metro 2033 skidrow crack update,  metro 2033 crack only skidrow full version,  metro 2033 skidrow password generator,  metro 2033 crack only skidrow online,  metro 2033 skidrow crack file,  metro 2033 crack only skidrow serial key,  metro 2033 skidrow password recovery,  metro 2033 crack only skidrow gameplay,  metro 2033 skidrow crack folder,  metro 2033 crack only skidrow activation code,  metro 2033 skidrow password remover,  metro 2033 crack only skidrow system requirements,  metro 2033 skidrow crack zip,  metro 2033 crack only skidrow trainer,  metro 2033 skidrow password unlocker,  metro 2033 crack only skidrow cheats,  metro 2033 skidrow crack iso,  metro 2033 crack only skidrow patch,  metro 2033 skidrow password hack,  metro 2033 crack only skidrow mods,  metro 2033 skidrow crack exe,  metro 2033 crack only skidrow review,  metro 2033 skidrow password bypass,  metro 2033 crack only skidrow error,  metro 2033 skidrow crack dll,  metro 2033 crack only skidrow keygen,  metro 2033 skidrow password reset,  metro 2033 crack only skidrow reloaded,  metro 2033 skidrow crack rar,  metro 2033 crack only skidrow repack,  metro 2033 skidrow password cracker,  metro 2033 crack only skidrow steamworks fix,  metro 2033 skidrow crack nfo,  metro 2033 crack only skidrow multiplayer,  metro 2033 skidrow password finder,  metro 2033 crack only skidrow windows 10,  metro 2033 skidrow crack bin file missing or corrupt fix
+ 
+This password is a reference to the novel, where Artyom learns that the Dark Ones are actually trying to communicate with him telepathically and offer him a chance to join them in a new world. The password also hints at the moral theme of the game, where the player must choose between following orders or following their conscience.
+ 
+Metro 2033 is a game that offers a rich and immersive story with multiple endings and choices. By using this password, the player can experience a different perspective and outcome that may change their view of the game and its characters.
+  
+Metro 2033 is not the only game in the series. It is followed by two sequels, Metro: Last Light and Metro Exodus, which continue Artyom's story and explore different locations and factions in the post-apocalyptic world. The games are praised for their atmospheric and immersive gameplay, as well as their faithful adaptation of the novel's themes and characters.
+ 
+The games also feature a unique mechanic called the "moral system", which tracks the player's actions and decisions throughout the game. Depending on the player's moral points, which are earned or lost by doing certain things such as helping or killing people, exploring or ignoring hidden areas, listening or interrupting conversations, etc., the game will change in subtle ways. For example, some characters may react differently to Artyom, some events may play out differently, and some visions or hallucinations may appear or disappear. The moral system also affects the ending of each game, as it determines whether Artyom will choose to save or destroy the world.
+ 
+The moral system is a way for the game to challenge the player's morality and ethics, as well as to reflect the consequences of their actions. The game does not judge the player for their choices, but rather lets them experience the results of their own decisions. The game also does not make it obvious what is the right or wrong choice, as each choice has its own benefits and drawbacks. The game encourages the player to think for themselves and to explore the different possibilities and outcomes that the game offers.
+ 8cf37b1e13
+ 
